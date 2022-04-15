@@ -10,7 +10,7 @@
 * 這一生最美的祝福
 * 欣賞 1645 還可以彈哪些歌
 
-  https://www.youtube.com/watch?v=1JakREeFGTQ&list=PLvX0rKJQikU4-o47GUCr5gEffECM9RpJv&index=18
+  [嘩！嘩！嘩！ 又來一套和弦，學完一千首歌](https://www.youtube.com/watch?v=1JakREeFGTQ&list=PLvX0rKJQikU4-o47GUCr5gEffECM9RpJv&index=18)
 
 ### C 1645 on C key, D key
 ### D
