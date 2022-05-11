@@ -16,5 +16,14 @@
   [嘩！嘩！嘩！ 又來一套和弦，學完一千首歌](https://www.youtube.com/watch?v=1JakREeFGTQ&list=PLvX0rKJQikU4-o47GUCr5gEffECM9RpJv&index=18)
 
 ### C 1645 on C key, D key
-### D
-### E
+* C Key, D Key
+* 轉位的原理（比較好彈、比較好聽）
+
+### D 氛圍營造的歌
+* Here I Bow
+* 左右手彈什麼、氛圍、加花
+
+### E Voicing
+* 不同節奏代表什麼意義
+* 2分、4分、8分、16分音符
+* 左手右手角色
