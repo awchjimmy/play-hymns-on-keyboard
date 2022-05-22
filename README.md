@@ -27,6 +27,7 @@
 * 不同節奏代表什麼意義
 * 2分、4分、8分、16分音符
 * 左手右手角色
+* [改變節奏，營造不同氛圍！ Here I Bow 舉例](https://www.youtube.com/watch?v=dJ4ZvcpDxSA)
 
 ### F 尾奏、間奏
 * 尾奏怎麼彈 451 / 456
