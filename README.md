@@ -29,7 +29,14 @@
 * 左手右手角色
 * [改變節奏，營造不同氛圍！ Here I Bow 舉例](https://www.youtube.com/watch?v=dJ4ZvcpDxSA)
 
-### F 尾奏、間奏
+### F 尾奏
 * 尾奏怎麼彈 451 / 456
 * 主歌接副歌、副歌接主歌
+
+### G 間奏
 * [間奏怎麼彈？即興怎麼彈？接下一首歌怎麼彈？ Here I Bow 舉例](https://www.youtube.com/watch?v=RHVRq7Mxzf4)
+
+---
+
+### H 節奏課
+* [跟著我一起用 Ableton Learning Music 學音樂 - 節奏篇](https://www.youtube.com/watch?v=bEBlVY7Xg_s)
