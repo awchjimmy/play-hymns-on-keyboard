@@ -36,8 +36,14 @@
 ### G 間奏
 * [間奏怎麼彈？即興怎麼彈？接下一首歌怎麼彈？ Here I Bow 舉例](https://www.youtube.com/watch?v=RHVRq7Mxzf4)
 
----
-
 ### H 節奏課
 * [跟著我一起用 Ableton Learning Music 學音樂 - 節奏篇](https://www.youtube.com/watch?v=bEBlVY7Xg_s)
+
+### I 自動伴奏
+
+### J 音高課
 * [跟著我一起用 Ableton Learning Music 學音樂 - 音高篇](https://www.youtube.com/watch?v=iRt3IZdqTrg)
+
+### K 以色列風格
+
+### L 唱歌怎麼唱
