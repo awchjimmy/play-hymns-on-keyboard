@@ -40,6 +40,7 @@
 * [跟著我一起用 Ableton Learning Music 學音樂 - 節奏篇](https://www.youtube.com/watch?v=bEBlVY7Xg_s)
 
 ### I 自動伴奏
+* [自動伴奏琴如何彈《你們要讚美耶和華》](https://www.youtube.com/watch?v=FPBB6FyUN0s)
 
 ### J 音高課
 * [跟著我一起用 Ableton Learning Music 學音樂 - 音高篇](https://www.youtube.com/watch?v=iRt3IZdqTrg)
