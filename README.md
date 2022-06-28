@@ -45,5 +45,8 @@
 * [跟著我一起用 Ableton Learning Music 學音樂 - 音高篇](https://www.youtube.com/watch?v=iRt3IZdqTrg)
 
 ### K 以色列風格
+* [以色列歌怎樣彈](https://www.youtube.com/watch?v=PrUGm2or-qI)
+* [以色列節日的主日怎樣帶](https://www.youtube.com/watch?v=YSWHR_my2TM)
 
 ### L 唱歌怎麼唱
+* [唱歌要怎麼唱？五音不全有救嗎？《要常常喜樂》](https://youtu.be/v3W9wad7Y6M)
