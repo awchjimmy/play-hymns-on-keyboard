@@ -51,3 +51,9 @@
 
 ### L 唱歌怎麼唱
 * [唱歌要怎麼唱？五音不全有救嗎？《要常常喜樂》](https://youtu.be/v3W9wad7Y6M)
+
+### M 琶音教學
+* [慢歌 Less is more Tips](https://www.youtube.com/watch?v=0KFdn5lGoLo&t=0s)
+
+### N 琶音教學
+* [Less is More, Less 到底要彈什麼？ 琶音教學](https://www.youtube.com/watch?v=vnJ2VnpxNgI)
